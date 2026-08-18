@@ -17,6 +17,7 @@
 - Feel free to connect with me through:
 - LinkedIn: www.linkedin.com/in/danish-ahmad-bb4973245
 - Email: ahmadshareef200@gmail.com
+- Portfolio: https://danish-2709.github.io/portfolio/
 - 😄 Pronouns:
 - He/Him
 - ⚡ Fun fact:
